@@ -2,4 +2,4 @@
 
 <hr>
 
-Hey ! Welcome to my portfolio. I am currently working on it 
+Hey ! Welcome to my portfolio ,i am currently working on it.
